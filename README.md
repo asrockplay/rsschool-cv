@@ -1,1 +1,1 @@
-# rsschool-cv
+https://asrockplay.github.io/rsschool-cv/cv
